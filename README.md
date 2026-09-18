@@ -1,5 +1,6 @@
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=74&pause=240&color=6A0DAD&center=true&vCenter=true&width=1580&lines=MISTFALL+HUNTER+HACK+2026;LOOT+•+EXTRACT+•+DOMINATE;CONQUER+THE+GYLDENMIST" alt="Mistfall Hunter Hack 2026" />
+
+
 </div>
 
 <br/>
